@@ -1,0 +1,1 @@
+# Trabalho-IA-1-HGTEncoder---Transforme
